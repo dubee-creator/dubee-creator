@@ -2,7 +2,7 @@
 - 👀 I’m interested in programing
 - 🌱 I’m currently learning wab dev
 - 💞️ I’m looking to collaborate on 
-- 📫 How to reach me i atach my link on my pp
+- 📫 How to reach me  link on pp or  @Tesfa60 on TG
 - 😄 Pronouns:
 - ⚡ Fun fact: 
 
